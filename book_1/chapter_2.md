@@ -153,4 +153,12 @@ Harry skirted in front of the tank and looked intently at the nope rope. His wig
 
 The snek suddenly opened its beady eyes. Slowly, v slowly, it uppied its head until its eyes were on a level wit Harry's.
 
-It winked.
+It winked. 
+"Sup boi." Harry totes thought it was rad. 
+He saw that it be from Brazil.
+"Yo, you be from Brazil, boi?" Harry asked.
+It shook its head, obvs annoyed that Harry was so dum he couldn't read the sign that said 'This big sus snake was bred in dang captivity, bois'
+Harry started talking to the snake, being really sus tbh, amd Dudley comes over and says "Ay, r u talking to a snake", and totes shoved Harry out of the way. And Harry just be like, 'omg, brotha, you gotta be so sus?', and Dudley totes just calls Piers over to look at the snake. 
+Well, then the glass just totes yeets itself, like sheesh, it just totes disappears. Dudley amd Piers scream like babies, amd the snake totes escapes.
+Harry still be on the dirty door from when Dudley shoved him, amd the snake totes slithers right next to him. He probs just hit his head on the floor, but he thought that the snake said, "Thx, brotha.", as it slithered away, and was prolly never seen again.
+
